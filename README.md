@@ -1,0 +1,3 @@
+hello! im a student at school, doing coding assesments. 
+thats about it. 
+although you may find the occasional secret...
